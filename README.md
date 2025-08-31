@@ -1,1 +1,0 @@
-# cowabungakid.github.io
